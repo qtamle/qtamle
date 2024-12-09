@@ -10,5 +10,5 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: lequoctamle55@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: U can call me Shrimp
+- ⚡ Fun fact: U can call me S(hr)imp
 
